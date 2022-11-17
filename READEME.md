@@ -1,4 +1,3 @@
 # Am probleme cu mașina
 
-
-Probleme multe rău!
+Probleme multe rău! rău de tot!!!!!!!!!!!!!!!!!!!1
